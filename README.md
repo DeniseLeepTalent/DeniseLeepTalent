@@ -63,7 +63,7 @@ Basic experience with cloud-based data solutions including storage and pipelines
 
 ## 📫 Connect With Me
 - 💼 LinkedIn: www.linkedin.com/in/denise-sorhaindo-304215273
-- 
+- 💼 https://sites.google.com/view/dsorhaindo
 
 ---
 
